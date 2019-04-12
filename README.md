@@ -1,1 +1,1 @@
-{"b":"http://cpdownfy.vip365pro.com/dlmxcp/index.php?affcode=dlvip01"}
+{"b":"https://152app.152-152-152.com/wap/iosappxz/index.html"}
